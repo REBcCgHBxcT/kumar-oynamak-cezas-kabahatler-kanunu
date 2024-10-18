@@ -1,0 +1,1 @@
+# kumar-oynamak-cezas-kabahatler-kanunu
